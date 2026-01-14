@@ -1,4 +1,4 @@
-# Nakama、Mc Staff、ΣP – DIA DELÍCIA (Slowed)
+# Nakama、ΣP – DIA DELÍCIA
 
 > **歌詞登録ステータス：同期歌詞あり**
 
