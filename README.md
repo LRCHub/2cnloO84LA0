@@ -1,4 +1,4 @@
-# Nakama、ΣP – DIA DELÍCIA
+# Nakama、Mc Staff、ΣP – DIA DELÍCIA
 
 > **歌詞登録ステータス：同期歌詞あり**
 
